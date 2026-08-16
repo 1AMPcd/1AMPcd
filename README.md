@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi there👋 it's me 🖤ThaChak🖤<br><br>Currently developing Roblox Game called Mudo. Fighting Game Using Antigravity.
+Hi there👋 it's me 🖤ThaChak🖤<br><br>Currently developing Roblox Game called Mudo.
 
 
 ## 🌐 Socials:
